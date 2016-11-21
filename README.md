@@ -4,6 +4,8 @@ Music-A-to-Z
 
 * Where It All Began. Warner Bros, 2014.
 
+* Obsessed. Warner Bros, 2016. 
+
 -- fun. 
 
 * Aim And Ignite. Nettwerk Productions, 2009. 
