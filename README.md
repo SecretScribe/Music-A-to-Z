@@ -9,3 +9,7 @@ Music-A-to-Z
 -- fun. 
 
 * Aim And Ignite. Nettwerk Productions, 2009. 
+
+-- Johann Pachelbel 
+
+* Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
