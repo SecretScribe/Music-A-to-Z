@@ -17,3 +17,7 @@ Music-A-to-Z
 -- Johann Pachelbel 
 
 * Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
+
+-- Taylor Swift 
+
+* 1989 D.L.X. Big Machine Records, 2014. 
