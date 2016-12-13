@@ -22,6 +22,10 @@ Music-A-to-Z
 
 * The Best of Keane. Cherrytree/Interscope Records, 2013. 
 
+-- One Direction
+
+* Take Me Home. Syco/Columbia, 2012. 
+
 -- Johann Pachelbel
 
 * Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
