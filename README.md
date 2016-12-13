@@ -10,6 +10,10 @@ Music-A-to-Z
 
 * Obsessed. Warner Bros, 2016. 
 
+-- The Decemberists
+
+* Picaresque. KRS, 2005. 
+
 -- fun. 
 
 * Aim And Ignite. Nettwerk Productions, 2009. 
