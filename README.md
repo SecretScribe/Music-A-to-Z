@@ -1,5 +1,9 @@
 Music-A-to-Z
 
+-- Sabrina Carpenter 
+
+* Eyes Wide Open. Hollywood Records, 2015. 
+
 -- Dan+Shay
 
 * Where It All Began. Warner Bros, 2014.
