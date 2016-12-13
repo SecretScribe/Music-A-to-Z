@@ -18,7 +18,11 @@ Music-A-to-Z
 
 * Hunter Hayes (Encore). Atlantic, 2013.
 
--- Johann Pachelbel 
+-- Keane 
+
+* The Best of Keane. Cherrytree/Interscope Records, 2013. 
+
+-- Johann Pachelbel
 
 * Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
 
