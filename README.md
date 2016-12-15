@@ -18,6 +18,10 @@ Music-A-to-Z
 
 * Aim And Ignite. Nettwerk Productions, 2009. 
 
+-- Genesis 
+
+* Duke. Atlantic, 1980. 
+
 -- Hunter Hayes 
 
 * Hunter Hayes (Encore). Atlantic, 2013.
