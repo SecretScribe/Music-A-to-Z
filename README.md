@@ -38,6 +38,10 @@ Music-A-to-Z
 
 * Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
 
+-- Camille Saint-Saens 
+
+* Carnival of the Animals/Organ Symphony. Various, Sony, 1991. 
+
 -- Taylor Swift 
 
 * 1989 D.L.X. Big Machine Records, 2014. 
