@@ -38,6 +38,10 @@ Music-A-to-Z
 
 * Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
 
+-- Passion Pit
+
+* Gossamer. Columbia, 2012. 
+
 -- Camille Saint-Saens 
 
 * Carnival of the Animals/Organ Symphony. Various, Sony, 1991. 
