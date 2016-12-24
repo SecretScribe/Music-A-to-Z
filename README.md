@@ -30,6 +30,10 @@ Music-A-to-Z
 
 * The Best of Keane. Cherrytree/Interscope Records, 2013. 
 
+-- The Lumineers 
+
+* The Lumineers. Dualtone, 2012. 
+
 -- One Direction
 
 * Take Me Home. Syco/Columbia, 2012. 
