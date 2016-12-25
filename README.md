@@ -38,6 +38,10 @@ Music-A-to-Z
 
 * Take Me Home. Syco/Columbia, 2012. 
 
+-- OneRepublic 
+
+* Oh My My. Mosley Music/Interscope Records, 2016. 
+
 -- Johann Pachelbel
 
 * Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
