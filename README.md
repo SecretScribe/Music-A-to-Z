@@ -40,9 +40,11 @@ Music-A-to-Z
 
 -- OneRepublic 
 
+* Waking Up. Mosley Music/Interscope Records, 2009. 
+
 * Oh My My. Mosley Music/Interscope Records, 2016. 
 
--- Johann Pachelbel
+-- Johann Pachelbel 
 
 * Pachelbel's Greatest Hit: The Ultimate Canon. Various, RCA Red Seal, 2003. 
 
