@@ -34,6 +34,10 @@ Music-A-to-Z
 
 * The Lumineers. Dualtone, 2012. 
 
+-- Maroon 5
+
+* It Won't Be Soon Before Long. A&M/Octone, 2007. 
+
 -- One Direction
 
 * Take Me Home. Syco/Columbia, 2012. 
