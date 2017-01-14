@@ -63,3 +63,7 @@ Music-A-to-Z
 -- Taylor Swift 
 
 * 1989 D.L.X. Big Machine Records, 2014. 
+
+-- Ryn Weaver
+
+* The Fool. Mad Love/Interscope Records, 2015. 
