@@ -54,6 +54,8 @@ Music-A-to-Z
 
 * True. Chrysalis, 1983.
 
+* Parade. Chrysalis, 1984.
+
 -- Taylor Swift 
 
 * 1989 D.L.X. Big Machine Records, 2014. 
