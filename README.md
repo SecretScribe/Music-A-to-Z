@@ -1,9 +1,5 @@
 Music-A-to-Z
 
--- Sabrina Carpenter 
-
-* Eyes Wide Open. Hollywood Records, 2015. 
-
 -- The Decemberists
 
 * Picaresque. KRS, 2005. 
