@@ -4,12 +4,6 @@ Music-A-to-Z
 
 * Eyes Wide Open. Hollywood Records, 2015. 
 
--- Dan+Shay
-
-* Where It All Began. Warner Bros, 2014.
-
-* Obsessed. Warner Bros, 2016. 
-
 -- The Decemberists
 
 * Picaresque. KRS, 2005. 
@@ -59,6 +53,10 @@ Music-A-to-Z
 -- Camille Saint-Saens 
 
 * Carnival of the Animals/Organ Symphony. Various, Sony, 1991. 
+
+-- Spandau Ballet 
+
+* True. Chrysalis, 1983.
 
 -- Taylor Swift 
 
