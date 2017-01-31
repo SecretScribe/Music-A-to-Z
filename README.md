@@ -64,6 +64,10 @@ Music-A-to-Z
 
 * 1989 D.L.X. Big Machine Records, 2014. 
 
+-- Peter Ilyitch Tchaikovsky
+
+* Tchaikovsky: Complete String Quartets. Borodin Quartet, Musical Heritage Society, 2001.
+
 -- Ryn Weaver
 
 * The Fool. Mad Love/Interscope Records, 2015. 
