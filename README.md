@@ -28,6 +28,10 @@ Music-A-to-Z
 
 * It Won't Be Soon Before Long. A&M/Octone, 2007. 
 
+-- Katharine McPhee 
+
+* Hysteria. LilyDog Entertainment, 2015. 
+
 -- One Direction
 
 * Take Me Home. Syco/Columbia, 2012. 
