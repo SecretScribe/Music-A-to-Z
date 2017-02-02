@@ -1,5 +1,9 @@
 Music-A-to-Z
 
+-- Johann Sebastian Bach
+
+* The Well-Tempered Clavier, Book 1. Friedrich Gulda, Philips, 1972. 
+
 -- The Decemberists
 
 * Picaresque. KRS, 2005. 
