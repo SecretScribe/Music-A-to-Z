@@ -1,5 +1,9 @@
 Music-A-to-Z
 
+-- Aurora
+
+* All My Demons Greeting Me As A Friend. Glassnote, 2016. 
+
 -- Johann Sebastian Bach
 
 * The Well-Tempered Clavier, Book 1. Friedrich Gulda, Philips, 1972. 
