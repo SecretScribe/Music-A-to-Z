@@ -8,6 +8,10 @@ Music-A-to-Z
 
 * The Well-Tempered Clavier, Book 1. Friedrich Gulda, Philips, 1972. 
 
+-- Coldplay
+
+* Mylo Xyloto. Capitol, 2011. 
+
 -- The Decemberists
 
 * Picaresque. KRS, 2005. 
