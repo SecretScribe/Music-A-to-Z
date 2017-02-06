@@ -16,6 +16,10 @@ Music-A-to-Z
 
 * Picaresque. KRS, 2005. 
 
+-- Duran Duran 
+
+* Greatest. Parlophone, 1998. 
+
 -- fun. 
 
 * Aim And Ignite. Nettwerk Productions, 2009. 
