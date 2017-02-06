@@ -74,6 +74,8 @@ Music-A-to-Z
 
 -- Taylor Swift 
 
+-- 1989. Big Machine Records, 2014. 
+
 * 1989 D.L.X. Big Machine Records, 2014. 
 
 -- Peter Ilyitch Tchaikovsky
