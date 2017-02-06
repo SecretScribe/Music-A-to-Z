@@ -38,7 +38,7 @@ Music-A-to-Z
 
 -- The Lumineers 
 
-* The Lumineers. Dualtone, 2012. 
+* The Lumineers. Dualtone, 2012.
 
 -- Maroon 5
 
