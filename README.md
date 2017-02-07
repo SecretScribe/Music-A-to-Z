@@ -48,10 +48,6 @@ Music-A-to-Z
 
 * Hysteria. LilyDog Entertainment, 2015. 
 
--- One Direction
-
-* Take Me Home. Syco/Columbia, 2012. 
-
 -- OneRepublic 
 
 * Waking Up. Mosley Music/Interscope Records, 2009. 
