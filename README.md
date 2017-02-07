@@ -20,6 +20,10 @@ Music-A-to-Z
 
 * Greatest. Parlophone, 1998. 
 
+-- The Fray
+
+* How To Save A Life. Sony, 2005. 
+
 -- fun. 
 
 * Aim And Ignite. Nettwerk Productions, 2009. 
