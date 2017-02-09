@@ -8,6 +8,10 @@ Music-A-to-Z
 
 * The Well-Tempered Clavier, Book 1. Friedrich Gulda, Philips, 1972. 
 
+-- The Beatles
+
+* Magical Mystery Tour. Apple, 1967. 
+
 -- Coldplay
 
 * Mylo Xyloto. Capitol, 2011. 
