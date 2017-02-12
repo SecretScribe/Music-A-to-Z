@@ -12,6 +12,10 @@ Music-A-to-Z
 
 * Magical Mystery Tour. Apple, 1967. 
 
+-- Bread
+
+* The Best of Bread. Elektra, 1976.
+
 -- Coldplay
 
 * Mylo Xyloto. Capitol, 2011. 
