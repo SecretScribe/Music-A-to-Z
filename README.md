@@ -44,6 +44,10 @@ Music-A-to-Z
 
 * Hunter Hayes (Encore). Atlantic, 2013.
 
+-- Jars of Clay
+
+* Greatest Hits. Essential Records, 2008. 
+
 -- Keane 
 
 * The Best of Keane. Cherrytree/Interscope Records, 2013. 
