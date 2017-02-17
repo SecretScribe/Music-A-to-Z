@@ -52,10 +52,6 @@ Music-A-to-Z
 
 * The Best of Keane. Cherrytree/Interscope Records, 2013. 
 
--- The Lumineers 
-
-* The Lumineers. Dualtone, 2012.
-
 -- Maroon 5
 
 * It Won't Be Soon Before Long. A&M/Octone, 2007. 
