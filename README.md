@@ -1,5 +1,9 @@
 Music-A-to-Z
 
+-- 5 Seconds of Summer 
+
+* Sounds Good Feels Good. Capitol, 2015. 
+
 -- Aurora
 
 * All My Demons Greeting Me As A Friend. Glassnote, 2016. 
